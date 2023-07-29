@@ -6,3 +6,10 @@ THIS IS NOT THE BEST AS SAID IN THE READ ME IN THE FILE
 
 
 READ THE READ ME!!!!!!!
+
+
+
+
+
+>MAKE SURE TO DOWNLOAD AS A ZIP FILE<
+>Green Code Button - Download as zip<
